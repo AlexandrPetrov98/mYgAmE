@@ -1,2 +1,0 @@
-# mYgAmE
- igray naZDOROVIE
